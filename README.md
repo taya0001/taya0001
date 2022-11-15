@@ -1,3 +1,3 @@
-# taya0001.github.io
+# taya0001
 
 https://vk.com/natalka1010
